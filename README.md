@@ -1,2 +1,2 @@
-### My pussusy hurts 🥺
-![](https://github.com/Lolicchi/Lolicchi/blob/%E1%B6%AC%E1%B5%85%E1%B6%A5%E1%B6%AF/boobs.gif?raw=true)
+### Jamie, 14, she/her, I code in TypeScript, learning Rust. DM me if u want a cool ass discord bot for cheap x.
+![](https://www.youtube.com/watch?v=4tZT9dXxD10)
