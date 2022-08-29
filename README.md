@@ -1,1 +1,1 @@
-[![](https://img.youtube.com/vi/4tZT9dXxD10/sddefault.jpg)](https://www.youtube.com/watch?v=4tZT9dXxD10)
+[![](https://github.com/Lolicchi/Lolicchi/raw/%E1%B6%AC%E1%B5%85%E1%B6%A5%E1%B6%AF/scroll%E5%BF%8D%20-%20Mahaji%20-%20Snowing%20(Feat.%20Prvnci)%20%5B4tZT9dXxD10%20-%201090x546%20-%200m12s%5D.png)](https://www.youtube.com/watch?v=4tZT9dXxD10)
